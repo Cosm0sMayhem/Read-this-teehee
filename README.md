@@ -17,6 +17,7 @@ Easy, i dont. but i made a list anyway
 
 # MY F/O'S
 Romantic:
+
 🎀 - N [MD]
 
 🎀 - Mafioso [Forsaken / Dream Game]
@@ -44,10 +45,17 @@ WIP
 
 # MY F/O'S
 Familial / Platonic:
+
 🎀 - Vinestaff [P!] 
+
 🎀 - Medkit [P!]
+
 🎀 - Pure Vanilla cookie [CRK]
+
 🎀 - Chance [Forsaken]
+
 🎀 - Herlock Sholmes [TGAAC]
+
 🎀 - Katana [P!] 
+
 ✔ - TBA
