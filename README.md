@@ -18,15 +18,25 @@ Easy, i dont. but i made a list anyway
 # MY F/O'S
 Romantic:
 🎀 - N [MD]
+
 🎀 - Mafioso [Forsaken / Dream Game]
+
 🎀 - Two [TPOT] **Soulbond**
+
 🎀 - Lycanon [ZZZ]
+
 🎀 - Banhammer [P!]
+
 🎀 - Pierrot [TFC] **Soulbond**
+
 🎀 - Shedletsky / Telamon [Forsaken / Roblox] **Soulbond**
+
 🎀 - Mystery [KPDH] **Soulbond**
+
 ✔ - Yi-Xi
+
 ✔ - Korekiyo Shinguji [DRV3]
+
 ✔ - Raihan [PKMN]
 
 WIP
