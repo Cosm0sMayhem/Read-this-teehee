@@ -34,11 +34,19 @@ Romantic:
 
 🎀 - Mystery [KPDH] **Soulbond**
 
-✔ - Yi-Xi
+🎀 - Yi-Xi [Synth V] **Soulbond**
+
+🎀 - Jade Leech [TWST] 
+
+🎀 - Floyd Leech [TWST] **SELECTIVE** Sharing - Irl friend
 
 ✔ - Korekiyo Shinguji [DRV3]
 
 ✔ - Raihan [PKMN]
+
+✔ - Leona Kingscholar [TWST]
+
+✔ - Riddle Rosehearts [TWST] Sharing - Irl friend
 
 WIP
 --------------------
